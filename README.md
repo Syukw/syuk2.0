@@ -3,7 +3,7 @@ the best chat bot in the world
 Shop information
 
 Baker:
-Mrs. Damia (Exquisite 3-star Michelin star bakery chef)
+Ms. ety (Exquisite 3-star Michelin star bakery chef)
 
 Time open:
 Everyday from 9am to 10pm (Except wednesday)
